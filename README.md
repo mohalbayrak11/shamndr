@@ -1,0 +1,1 @@
+it runs probobly and was def not made by cluade code and codex use python i used notepad u can use cursure tho idc what u use just dont copy pls 😒😒<img width="474" height="450" alt="CatStareGIF" src="https://github.com/user-attachments/assets/532b4e7d-f15e-452d-b59c-2b2be100b5d0" />
